@@ -1,1 +1,0 @@
-https://healer5.github.io/rsschool-cv/cv
